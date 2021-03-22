@@ -3,9 +3,9 @@
 
 ### [Project: Ooga Booga](https://www.youtube.com/watch?v=dQw4w9WgXcQ&ab_channel=RickAstleyVEVO)
 
-### [Instagram:](https://www.instagram.com/icepilloww/)
+### [Instagram](https://www.instagram.com/icepilloww/)
 
-### [Twitter:](https://twitter.com/Icepillow3)
+### [Twitter](https://twitter.com/Icepillow3)
 
-### [Artstation:](https://www.artstation.com/icepillow)
+### [Artstation](https://www.artstation.com/icepillow)
 
