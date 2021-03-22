@@ -9,7 +9,5 @@
 
 ### [Artstation](https://www.artstation.com/icepillow)
 
-![GitHub Logo](/images/logo.png)
-Format: ![Alt Text](url)
 
 
