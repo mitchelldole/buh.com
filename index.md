@@ -1,7 +1,7 @@
 ## Mitchell Dole's portfolio links:
 
 
-### Project: [Ooga Booga](https://www.youtube.com/watch?v=dQw4w9WgXcQ&ab_channel=RickAstleyVEVO)
+### [Project: Ooga Booga](https://www.youtube.com/watch?v=dQw4w9WgXcQ&ab_channel=RickAstleyVEVO)
 
 ### [Instagram:](https://www.instagram.com/icepilloww/)
 
